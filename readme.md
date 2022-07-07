@@ -1,0 +1,1 @@
+estudo da biblioteca wikipedia
